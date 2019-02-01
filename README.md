@@ -1,0 +1,2 @@
+# ven-x-internet-services
+Image result for description of a businesssmallbusiness.patriotsoftware.com The company description section of your business plan is typically the second section, coming after the executive summary. ... The company description of your business plan describes the vision and direction of the company so potential lenders and partners can develop an accurate impression about who you are.Sep 30, 2018 How to Write a Company Description - The Balance Small Business https://www.thebalancesmb.com/how-to-write-a-company-description-2951558
